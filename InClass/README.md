@@ -15,4 +15,6 @@ Do the following:
 1. To finish, submit a link to the repository in your account on github to the assignment on BB.
 
 
-I had some coffee for breakfast
+For breakfast I had 
+1.) strawberry mango juice
+2.) hashbrowns this morning 
