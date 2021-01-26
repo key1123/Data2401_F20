@@ -17,4 +17,4 @@ Do the following:
 
 For breakfast I had 
 1.) strawberry mango juice
-2.) hashbrowns this morning 
+2.) hashbrowns
